@@ -1,0 +1,1 @@
+# MCP_Mediapipe_Rock_paper_scicorss_with_AI-Palpatine
